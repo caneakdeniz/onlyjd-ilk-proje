@@ -1,2 +1,0 @@
-# onlyjd-ilk-proje
-bişiler
